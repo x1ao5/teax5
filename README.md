@@ -1,2 +1,2 @@
 請把妳們手中的tea全部質押到teax5 謝謝
-https://cdn.discordapp.com/attachments/1208600218619347055/1229426529159741541/X5C2.png?ex=664aaa6e&is=664958ee&hm=2de3f1a599475cd942074c8edfd0b66fcf30dd26d450d12e544e3061d3bca06b&
+![X5C2](https://github.com/x1ao5/teax5/assets/131394168/4a1676c7-9ad7-4321-91a3-5cbe2ec99ffa)
